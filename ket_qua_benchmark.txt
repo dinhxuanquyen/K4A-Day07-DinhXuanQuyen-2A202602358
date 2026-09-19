@@ -1,0 +1,23 @@
+=== BẮT ĐẦU CHẠY BENCHMARK THỰC TẾ (OPENAI) ===
+
+Đã cắt ra tổng cộng 58 chunks từ 6 file.
+
+Câu hỏi 1: Sinh viên hệ Chuẩn phải đóng học phí theo hình thức nào?
+-> Top 1 Chunk (Score: 0.712): # Quy định học phí  Học phí & chính sách | Sổ tay Sinh viên UET  Học phí - Chế đ...
+-> Agent Answer: Sinh viên hệ Chuẩn phải đóng học phí theo hình thức thu theo tín chỉ.
+
+Câu hỏi 2: Khi nào sinh viên bị kỷ luật Cảnh cáo thì Điểm rèn luyện tối đa là bao nhiêu?
+-> Top 1 Chunk (Score: 0.478): Kỷ luật Cảnh cáo: ĐRL tối đa loại Trung bình. Kỷ luật Đình chỉ: Không đánh giá t...
+-> Agent Answer: Điểm rèn luyện tối đa loại Trung bình.
+
+Câu hỏi 3: Sinh viên người dân tộc thiểu số thuộc hộ nghèo được miễn giảm học phí ra sao?
+-> Top 1 Chunk (Score: 0.755): Sinh viên là người dân tộc thiểu số có cha hoặc mẹ hoặc cả cha và mẹ hoặc ông bà...
+-> Agent Answer: Sinh viên người dân tộc thiểu số thuộc hộ nghèo được miễn giảm học phí theo quy định của Thủ tướng Chính phủ, cần nộp đơn xin miễn, giảm học phí theo mẫu và bản sao Giấy khai sinh.
+
+Câu hỏi 4: Để đạt điểm rèn luyện loại xuất sắc cần bao nhiêu điểm?
+-> Top 1 Chunk (Score: 0.480): Điểm cơ sở: 70 điểm (dành cho SV không vi phạm quy chế), sau đó cộng/trừ điểm ch...
+-> Agent Answer: Để đạt điểm rèn luyện loại xuất sắc, cần từ 90 đến 100 điểm.
+
+Câu hỏi 5: Sinh viên khuyết tật có được ưu tiên điểm rèn luyện không?
+-> Top 1 Chunk (Score: 0.570): Sinh viên khuyết tật, hoàn cảnh đặc biệt: Có cơ chế cộng điểm ưu tiên sự nỗ lực....
+-> Agent Answer: Có, sinh viên khuyết tật được ưu tiên điểm rèn luyện thông qua cơ chế cộng điểm ưu tiên sự nỗ lực.

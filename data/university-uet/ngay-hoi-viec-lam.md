@@ -1,0 +1,456 @@
+---
+doc_id: "ngay-hoi-viec-lam"
+title: "NGÀY HỘI VIỆC LÀM TRƯỜNG ĐẠI HỌC CÔNG NGHỆ - UET JOB FAIR 2026"
+source_url: "https://vieclam.uet.vnu.edu.vn/ngay-hoi-viec-lam-truong-dai-hoc-cong-nghe-uet-job-fair-2026-ht058595484436"
+retrieved_at: "2026-09-19"
+document_version: "not-stated"
+audience: "student"
+department: "acadamic-
+event"
+category: "event"
+language: "vi"
+---
+
+# NGÀY HỘI VIỆC LÀM TRƯỜNG ĐẠI HỌC CÔNG NGHỆ - UET JOB FAIR 2026
+
+NGÀY HỘI VIỆC LÀM TRƯỜNG ĐẠI HỌC CÔNG NGHỆ - UET JOB FAIR 2026 - ĐHCN-ĐHQGHN
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Sự Kiện
+
+
+
+
+
+NGÀY HỘI VIỆC LÀM TRƯỜNG ĐẠI HỌC CÔNG NGHỆ - UET JOB FAIR 2026
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Ngày: 21 tháng 3 năm 2026
+
+
+
+
+
+
+
+
+
+
+Thời gian: 07h - 17h
+
+
+
+
+
+
+
+
+
+Địa điểm: Địa điểm: Sân chính E1, E2, E3, E4 và Quảng trường Đại học Quốc gia Hà Nội (144 Xuân Thuỷ, Cầu Giấy, Hà Nội)
+
+
+
+
+
+
+
+
+Hết hạn
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Nội dung:
+
+1. Khai mạc chương trình
+
+Văn nghệ chào mừng
+
+Phát biểu khai mạc
+
+Hệ thống việc làm số của UET
+
+Phát biểu của nhà tài trợ
+
+Trao kỉ niệm chương cho nhà tài trợ
+
+2. Ngày hội và tuyển dụng
+
+Sinh viên tham quan các gian trại: nghe giới thiệu và tìm kiếm cơ hội tuyển dụng, thực tập
+
+Giải đấu Esport dành cho sinh viên: Đội chơi đăng ký trước với BTC. Vòng chung kết của giải đấu diễn ra vào buổi chiều của Ngày hội.
+
+Các hoạt động minigame, hội thao và văn nghệ của BTC.
+
+Các hoạt động giao lưu, tuyển dụng, phỏng vấn...tại phòng riêng do BTC hỗ trợ hoặc tại các gian trại của doanh nghiệp.
+
+Chung kết lớp tôi là số 1 cấp Trường Đại học Công nghệ
+
+Vai trò:
+
+Sinh viên nắm bắt thông tin thực tập, tuyển dụng của doanh nghiệp và xu hướng công nghệ, việc làm trong năm 2026.
+
+Doanh nghiệp nắm bắt được tâm lý sinh viên khi đang còn ngồi trên ghế nhà trường.
+
+Doanh nghiệp giới thiệu các sản phẩm, công nghệ, lĩnh vực nghiên cứu, nhu cầu tuyển dụng.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Đổi mật khẩu
+
+
+×
+
+
+
+
+
+
+Mật khẩu cũ: 
+
+
+
+
+
+
+
+
+
+Mật khẩu mới: 
+
+
+
+
+
+
+
+
+
+Gõ lại mật khẩu mới: 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Hủy bỏ
+
+
+
+
+
+Đổi mật khẩu
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Thông báo
+
+×
+
+
+
+
+
+
+OK
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Xác nhận
+
+
+×
+
+
+
+
+
+
+Modal body text goes here.
+
+
+
+
+
+Hủy bỏ
+Đồng ý
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Thông báo
+
+×
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Mong muốn tìm việc của bạn
+
+
+
+
+
+
+
+Điền thông tin để chúng tôi có thể gợi ý công việc tốt nhất dành cho bạn.
+
+
+
+
+nhân viên hồ sơ dự thầukỹ sư cơ khíkỹ thuật điệntài xếkế toán dịch vụtổ trưởng nông trườngthực tập sinh sale adminthực tập sinh truyền thôngtrưởng phòng tư vấn tuyển sinhlập trình c/c++nhân viên cung ứng vật tư xây dựngthực tập sinh content marketingnhân viên hồ sơ thầu ngành dượcgiảng viên quản trị kinh doanhgiám đốc nhân sựnhân viên điều hành tour nội địathợ sơn ô tônhân viên bảo trì máy mócnhân viên photoshopchuyên viên tái thẩm địnhnhân viên google adsthực tập sinh .netnhân viên lắp đặt điện tử viễn thôngnhân viên copywriterkế toán giá thànhchuyên viên kiểm soát tài chínhthợ thạch caothợ đá ốp látthực tập sinh chứng khoánkỹ sư thiết bị y tếnhân viên kinh doanh nông sảnkế toán ngân hànggiáo viên hóalập trình fullstackgiáo viên dạy vẽlái xe 7 chỗtrưởng phòng hành chính nhân sựnhân viên xử lý hồ sơ du họcnhân viên cơ khíkỹ sư phòng cháy chữa cháygiáo viên tiếng anh trẻ emlập trình back-endnhân viên quay phimnhân viên phát triển mẫunhân viên giám sát cameragiáo viên cờ vuacông nhân đứng máycán bộ kỹ thuật hiện trườngthợ chụp ảnhnhân viên thiết kế in ấntrưởng nhóm an toàn bảo mật thông tintrưởng phòng quản lý đơn hàngchuyên viên quản trị ứng dụngtrưởng nhóm chứng từ xuất nhập khẩukỹ sư thiết kế xây dựngtrưởng nhóm thiết kế kết cấutrưởng phòng bảo hànhnhân viên kho dượckế toán doanh thukỹ thuật viên nguộigiáo viên dạy lái xetrưởng bộ phận thẩm định thực địabếp trưởng bếp bánhchuyên viên đào tạo trang điểmtiếp viên hàng khôngnhân viên nghiên cứu phát triển công nghệchuyên viên quản lý vốnnhân viên chăm sóc cây xanhkỹ sư dự ány tá công trườngnhân viên kỹ thuật máy maygiáo viên tiếng trungcông nhân kỹ thuậttrưởng phòng tư vấn môi trườngnhân viên biên dịch tiếng nhậtchuyên viên phân tích nghiệp vụnhân viên kế toánnhân viên kinh doanh nội thấttrưởng nhóm khách hàng cá nhânphân tích dữ liệukiến trúc sưchuyên viên quản lý kolcửa hàng trưởngnhân viên phòng quản lý đào tạonhân viên tư vấn chứng khoánnhân viên iekỹ sư công nghệ hóa họcnhân viên kế hoạch sản xuấttrưởng phòng bảo trìtrưởng phòng quản lý chất lượngnhân viên kinh doanh phụ gia thực phẩmthực tập sinh tín dụngkế toán khonhân viên hóa nghiệmkỹ thuật viên x-quangnhân viên thư việnnhân viên kinh doanh thức ăn chăn nuôinhân viên lễ tân tòa nhàkỹ sư tự động hóatrợ lý mua hàngnhân viên chăm sóc dagiáo viên dạy bơibếp phótrưởng phòng giao dịchdata engineerlập trình viên flutterkỹ thuật viên xét nghiệmtrưởng nhóm google adskỹ thuật viên nội soi tiêu hóamotion graphic designertrưởng phòng tác nghiệp tín dụngtrưởng bộ phận kiến trúctrưởng kho dượcnhân viên vận hành hệ thống xử lý nước thảilái xe lunhân viên khảo thíbác sĩ dinh dưỡngnhân viên biên dịch tiếng phápphiên dịch tiếng ngaphó phòng kế hoạch sản xuấtphó phòng tài chínhnhân viên mua hàng xây dựngthợ dán keo xethợ thi công giấy dán tườngthợ nailnhân viên vệ sinh công cộngthực tập sinh nodejsthợ mộcnhân viên an ninh tòa nhàtrưởng phòng kinh doanh thiết bị y tếgiáo viên nhạcnhân viên phân tích môi trườnggiáo viên pianothợ thi công nội thấtlái xe văn phòngđội trưởng đội xecán bộ tâm lý học đườngnhân viên bếp nhà hàngtrưởng phòng phát triển dự ánbiên dịch viên tiếng trungtrợ lý giám đốc thương hiệunhân viên qa may mặcquản lý kinh doanh bảo hiểmkỹ sư cơ điệnnhân viên đào tạo nhân sựchỉ huy trưởng công trình cơ điệnnhân viên đối ngoạitổ trưởng chuyền maynhân viên tài chínhbảo vệ nhà hàngthợ thi cônggiám đốc xây dựngnhân viên tiếng ýnhân viên duyệt tinnhân viên đăng ký thuốcsale adminthực tập sinh tuyển dụngtrưởng nhóm kiểm toánthực tập sinh kiểm toánquản lý dự ánnhân viên điều phốinhân viên phiên dịchnhân viên mua hàngnhân viên thiết kế đồ họanhân viên kỹ thuật bảo hànhtrưởng phòng phát triển mặt bằngthực tập sinh kiểm soát nội bộthực tập sinh kinh doanh bất động sảntổng quản lý nhà hàngnhạc sĩnhân viên trade marketingecommerce managertalent acquisition executivegiám đốc điều hànhkỹ sư trắc đạctrưởng bộ phận hỗ trợ kinh doanhquản lí nhà hàngkế toán xây dựngkế toán tổng hợpnhân viên kiểm soát chất lượng dịch vụquản đốc sản xuấtnhân viên kỹ thuật tòa nhàđiều dưỡng trưởngnhân viên bảo trì điệnnhân viên tư vấn tuyển dụngthuyền viênnhân viên bảo hiểm xã hộigiám sát an toàn lao độnggiám đốc kinh doanh bất động sảntrưởng phòng khách hàng cá nhânnhân viên caddycông nhân lắp rápbác sĩ khoa sảnthợ cắt vảinhân viên cắm hoagiám đốc công nghệgiám đốc kỹ thuậtbác sĩ khoa nhinhân viên hành lýphụ bếpnhân viên lễ tân spatrưởng phòng kinh doanh nông sảntrợ lý truyền thônggiáo viên tâm lýlái xe buýtthợ ủi quần áobác sĩ phẫu thuật thần kinhkế toán sản xuấtngười mẫunhân viên kinh doanh bao bìnhân viên sinh quảnnhân viên tiếng trungkỹ sư điều khiển tự độngthợ tiệnchuyên viên tuyển dụng itgiám sát đặt phòngnhân viên kcstrưởng phòng digital marketingtrưởng nhóm thiết kếchủ nhiệm thiết kế công trìnhnhân viên thiết kế autocadtrưởng nhóm đào tạo nhân sựbảo vệ nhà máykế toán chi phínhân viên điều phối hàng hóagiám sát thi công nội thấtgiám đốc kinh doanh toàn quốcnhân viên giáo vụthực tập sinh digital marketingthực tập lập trình javanhân viên triển khai phần mềmthực tập sinh c&btrưởng nhóm lập trình viêngiám đốc kiểm toántrưởng ca bán hàngquản lý siêu thịnhân viên phát triển thị trườngnhân viên tuyển dụngthợ điệngiáo viênnhân viên thiết kếtạp vụnhân viên tư vấntesterbiên kịchquản lý an ninhkỹ sư kinh tế xây dựngnhân viên kinh doanh mỹ phẩmgiáo viên ngữ văntrưởng phòng smttrưởng nhóm chăm sóc khách hàngtrưởng phòng nhượng quyền thương hiệukỹ sư nông nghiệpnhân viên quản lý sàn thương mại điện tửnhân viên phân tích tiền mã hóaquản lý spanhân viên tư vấn luậttrưởng phòng phát triển thị trườngthực tập sinh trợ lý giám đốcthực tập sinh pháp lýkỹ thuật viên spanhân viên tư vấn thẩm mỹquản lý phòng tậpnhân viên viết hồ sơ môi trườngnhân viên nghiên cứu thị trườngthực tập sinh testertrưởng phòng sản xuấthuấn luyện viên fitnessthợ làm bánhkỹ sư cấp thoát nướcgiảng viên quản trị du lịch lữ hànhtrưởng nhóm khách hàng doanh nghiệptrợ lý cửa hànggiáo viên sinh họcnhân viên kỹ thuật maynhân viên điều phối vận tảigiảng viên đồ họatrợ lý thiết kếtrợ lý nhân sựtrưởng phòng c&bquản lý tổ chức sự kiệngiáo viên tiếng anhthực tập sinh điện tử viễn thônghọa sĩ hoạt hìnhtrưởng phòng đấu thầunhân viên lễ tân nha khoanhân viên qc may mặctrưởng phòng kinh doanh dự ánhuấn luyện viên bóng đánhân viên bếp lạnhchuyên viên tư vấn bảo hiểm cấp caonhân viên vận hành máy dậpbác sĩ răng hàm mặtthợ cốt phanhân viên giữ đồphóng viênnhân viên lễ tân hành chínhnhân viên kinh doanh thiết bị y tếkế toán kiểm kêtrưởng nhóm kinh doanh thiết bị y tếkiến trúc sư cảnh quantrợ lý đạo diễnbác sĩ xét nghiệmthợ lặnkỹ sư tàu thủybiên tập viên nội dung websitethợ trần thạch caotrợ lý kế toándata managernhân viên chăm sóc khách hàng mảng thương mại điện tửnhân viên kỹ thuật thiết bị y tếnhân viên biên dịch tiếng hànlập trình viên react nativetrưởng nhóm c&bhộ lýnhân viên vận hành lớp họctrưởng phòng kinh doanh phần mềmnhân viên quay dựng videonhân viên tư vấn du họctrưởng ngành hàngchuyên viên tư vấn tín dụng thế chấptrưởng phòng marketingchuyên viên quan hệ khách hànggiám đốc marketingkỹ sư qsit comtornhân viên livestreamkỹ sư sản xuấttrưởng phòng nội dungnhân viên tư vấn tâm lýthực tập sinh nghiên cứu thị trườnggiám đốc chi nhánhnhân viên thiết kế bao bìnhân viên thiết kế đồ gỗthực tập sinh chứng từ xuất nhập khẩutrợ lý nghệ sĩquản lý nhà thuốcchuyên viên phát triển kolaccount internnhân viên dịch thuậtphiên dịch tiếng tháinhân viên hỗ trợ sự kiệnthực tập sinh chăm sóc khách hàngquản lý bếpkỹ thuật viên smtchuyên viên đầu tưnhân viên nhượng quyền thương hiệutrưởng phòng kinh doanh onlinechuyên viên nguồn vốntrưởng phòng quản lý hệ thống isohuấn luyện viên yogathợ rèmnhân viên phòng labnhân viên bếp nóngnhân viên rửa xethợ thi công quảng cáokế toán nội bộthợ gòtrợ lý vận hành thương mại điện tửchuyên viên chương trình mầm nonnhân viên kế hoạch cung ứngtrưởng phòng đầu tưthực tập sinh thiết kế đồ họatrình dược viên etccộng tác viên contentgiảng viên dạy lập trìnhchuyên viên thẩm định tài sảnnhân viên kiểm nghiệm vi sinhtrưởng phòng phân tích nghiệp vụnhân viên chứng từ xuất nhập khẩuproduct ownergiám đốc siêu thịnhân viên bảo trì thang máynhân viên vận hành lò hơikỹ sư cầu nối tiếng hàntrưởng phòng nhân sựe-commerce executivenhân viên kinh doanh phần mềmnhân viên chăm sóc xe hơinhân viên kiểm nghiệmthợ thêuthợ hànhướng dẫn viên du lịchnhân viên chăm sóc khách hàngnhân viên lễ tânnhân viên y tếthực tập sinh marketingthực tập sinh nhân sựnhân viên xuất nhập khẩubếp trưởngnhân viên khogiám sát thi côngtrưởng nhóm thu hồi nợnhân viên sáng tạo nội dung videolập trình gamethợ cắtnhân viên quản trị webnhân viên thiết kế ui/uxchuyên viên thẩm định tín dụngchuyên viên điều tra gian lậnnhân viên quản lý tài sảnquản lý chuỗi cung ứngquản lý fanpagenhân viên nhập liệulễ tân phòng khámnhân viên điều hành tour outboundgiáo viên thanh nhạcchuyên viên thiết kế trang sức 3dgiáo viên tiếng hàngiảng viên triết họcnhân viên quản lí rủi ro tín dụngtrưởng nhóm khai báo hải quantrưởng phòng vật tưtrưởng bộ phận thu ngântrưởng nhóm kinh doanh bảo hiểmtrưởng phòng kinh doanh phụ tùng ô tôthợ sửa chữa điện thoạinhân viên nghiên cứu lâm sàngnhân viên bưu cụcbác sĩ lâm sàngbác sỹ y học cổ truyềnthợ nữ tranggiáo viên tiếng nhậtkỹ sư hạ tầngnhân viên vệ sinh tòa nhàkế toán quản trịkiểm ngângiáo viên dạy kỹ năng mềmkỹ thuật viên vận hành máy ép nhựathư ký công chứng viênthực tập lập trình unitycán bộ dự án phi chính phủkỹ thuật viên vật lý trị liệunhân viên quản lý chất lượng thực phẩmkỹ sư qs nội thấtlái xe cẩuhiệu phónhân viên xử lý khiếu nạithợ cơ khínhân viên thiết kế đồ họa 2dtrưởng ban kiểm soát nội bộnhân viên quản lý đơn hàngnhân viên cứu hộ bể bơithực tập sinh kinh doanh logisticschuyên viên giám sát dịch vụ mặt đấtnhân viên r&d dược phẩmnhân viên telemarketingtrưởng nhóm kỹ thuật toà nhànhân viên sơ chếtrưởng phòng kinh doanh ô tônhân viên kinh doanh bất động sảnlập trình viên odoolái xe cho giám đốctrưởng phòng chứng từ xuất nhập khẩunhân viên đóng góitrưởng phòng tài chínhnhân viên thiết kế nội thấtkỹ sư kết cấuchuyên viên thẩm định giáchuyên viên kol affiliatekế toán bán hàngkỹ sư điện lạnhnhân viên kỹ thuật sản xuấtnhân viên kinh doanh kỹ thuậtaccount managernhân viên phát triển đối táclập trình viên mobilegiám sát kinh doanhy táđầu bếpgiám đốc dự ánnhân viên phục vụkỹ sư thiết kế cơ khínhân viên trực pagenhân viên may mẫunhân viên telesalestrưởng phòng khách hàng doanh nghiệpnhân viên bán hàng xăng dầulập trình viên node.jsgiáo viên toánđiều dưỡng chuyên khoa mắtthực tập sinh tài chínhquản lý khách sạnbác sĩ chẩn đoán hình ảnhhọa sĩ vẽ truyện tranhnhân viên nuôi tômnhân viên oqctrưởng phòng marketing onlinegiám đốc kinh doanh ô tônhân viên thiết kế đồ họa 3dtrưởng phòng kinh doanh khu vựcquản lý kinh doanh khu vựctrưởng phòng văn thưtrưởng phòng thiết kế xây dựngthực tập sinh thiết kế xây dựngkế toán tiền lươngđội trưởng đội bảo vệtrợ lý y khoakỹ sư qs cơ điệnnhân viên stylistlập trình viên phptrưởng phòng chuỗi cung ứnglập trình viên .nettrưởng phòng thiết kế đồ họakỹ sư lập trình máy cncnhân viên kinh doanh quốc tếnhân viên thiết kế khuônnhân viên dịch vụ khách hànggiám sát bán hàng mtnhân viên bảo trì cơ khíchuyên viên bồi thường giải phóng mặt bằngnhân viên kỹ thuật intrợ lý xuất nhập khẩutrưởng bộ phận tiền sảnhnhân viên quản lý tòa nhànhân viên r&d gamenhân viên quản trị hệ thốngtrợ lý đoàn phimnhân viên bưu chínhthực tập sinh kiến trúc sưlái xe taxibiên dịch viên tiếng tây ban nhagiám đốc trung tâm thương mạinhân viên công tác xã hộilái xe tảitài xế lái xe dấu dnhân viên lễ tân nhà hàngtrưởng nhóm itlập trình viên blockchaingiáo viên địa lýkế toán nhà hàngtrưởng phòng sáng tạonhân viên thẩm định thực địanhân viên sản xuất dượcnhân viên tiếng đứctrưởng khoa dượcnhân viên hồ sơ thầu thiết bị y tếphụ khonhân viên lễ tân khách sạnkỹ sư vật lýtrưởng phòng đối ngoạinhân viên quản lý chất lượngnhân viên điều phối chuyến baythực tập sinh quan hệ khách hàng doanh nghiệpkiểm toán viênbác sĩnhân viên hành chínhnhân viên thẩm địnhbảo vệphụ tá nha khoakỹ sư điện tử viễn thôngtrưởng phòng quản lý dự ánthợ máy gầmnhân viên vận đơngiám đốc trung tâmkỹ sư lâm nghiệpnhân viên đặt phòngchuyên viên điều tra an ninhtrưởng nhóm marketing onlinetrưởng phòng kinh doanh bảo hiểmchuyên viên tuyển dụng - đào tạotrưởng phòng logisticstài xế lái xe hạng b2huấn luyện viên cá nhânthư ký xây dựngchuyên viên quản lý đô thịthực tập sinh phát triển kinh doanhkỹ sư dầu khícửa hàng phónhân viên hỗ trợ tín dụngthực tập sinh social medianhân viên phân tích tài chínhtrưởng phòng kỹ thuậtđại diện kinh doanhkế toán thanh toánthư ký hội đồng quản trịlập trình viên wordpressnhân viên thu mua bản quyềnit helpdesktạp vụ nhà hàngnhân viên giúp việcgiám sát bán hàng gttrưởng phòng dịch vụ ô tônhân viên điều chỉnh âm thanh ánh sángnhân viên sales marketingthực tập sinh giám định bảo hiểm ô tôkiểm soát giao dịchgiao dịch viênkỹ sư chế tạo máytrưởng nhóm thẩm địnhquản lý bưu cụcgiám sát cảnh quanlập trình front-endnhân viên content tiktokleader tiktoknhân viên truyền thông nội bộchuyên viên quan hệ khối khách hàng ưu tiêntrưởng phòng triển khai phần mềmtrưởng phòng trade marketingnhân viên diễn hoạtnhân viên thiết kế nhân vật hoạt hìnhnhân viên thiết kế trang sứckỹ sư thiết kế điệnkế toán vận tảigiáo viên giáo dục quốc phòngtrưởng nhóm facebook adsbác sĩ đa khoagiáo viên tiếng phápkỹ sư thủy sảnchuyên viên phòng chống rửa tiềnnhân viên tổng vụchỉ huy phóbác sĩ khoa mắttrưởng nhóm mua hàngphó phòng kế toánkỹ sư sinh họcbiên dịch viên tiếng thái lannhân viên kỹ thuật cameranhân viên phát tờ rơithợ cửa nhômthợ màinhân viên dẫn chương trìnhtrưởng nhóm telesalenhân viên facebook adsgiáo viên dạy ieltsquản lý barlái máy xúcnhân viên kỹ thuật khuôn mẫutrưởng phòng kinh doanh du lịchkỹ sư xây dựngchuyên viên làm hồ sơ định cưgiáo viên dạy nấu ănchuyên viên phụ trách ngành hàngnhân viên kinh doanh thị trườngnhân viên kinh doanh xuất nhập khẩunhân viên thu ngânnhân viên ittrưởng phòng thẩm địnhnhân viên seothư kýlao động phổ thôngnhân viên c&bbác sĩ chuyên khoa ung bướuthợ sửa chữa ô tôgia sưnhân viên mua hàng may mặcperformance marketing executivequản trị viên tập sựnhân viên dệt sợinhân viên tư vấn sở hữu trí tuệnhân viên đấu thầukế toán hành chínhquản lý trang trạidevsecopsgiám đốc đào tạotổ trưởng bộ môntrưởng nhóm testerkỹ thuật viên sửa chữa ô tôthợ nhôm kínhthực tập sinh logisticstrưởng nhóm bồi thường bảo hiểmquản lý trình dược viêntổ trưởng kỹ thuậttrình dược viên otcnhân viên vận hành gamenhân viên vật tưtrợ lý pháp lýnhân viên logisticsthợ gội đầuchuyên viên thẩm định bồi thườnggiáo viên dạy trẻ tự kỉchuyên viên phê duyệt tín dụngthợ sửa chữa máy maybác sĩ thẩm mỹlái xe nângkiến trúc sư xây dựnggiám thịcộng tác viên thu âmnhân viên đặt lịchtrợ lý phó tổng giám đốcthợ khắc laserthợ nguộidiễn viênnhân viên pgthực tập sinh hành chínhnhân viên bảo trì tòa nhàthực tập sinh kinh doanh phần mềmtổ trưởng đóng góinhân viên thu mua nông sảnhọa sỹ thiết kế sáchthực tập sinh kol affiliatetrưởng nhóm thiết kế đồ họathực tập sinh thiết kế gamenhân viên bán thuốcnhân viên thiết kế gametrưởng phòng cơ điệnchuyên viên tư vấn tín dụng tín chấpnhân viên pha chếtrưởng phòng thiết kế nội thấttrợ lý quản lý nhà hàngnhân viên kinh doanh kênh phân phốinhân viên bán vé máy baynhân viên tiếng nhậtthực tập sinh kinh doanh thương mại điện tửthực tập sinh du lịchnhân viên kỹ thuật thang máyquản lý trung tâmtrưởng nhóm r&dnhân viên pháp chếtrưởng phòng r&dthực tập sinh quan hệ khách hàng cá nhângiám đốc kinh doanh khu vựcnhân viên biên tập videolập trình viên rubylập trình viên golangtrưởng ban quản lý tòa nhànhân viên kỹ thuật máy tínhthủ quỹnhân viên đón khách tại sân baybảo vệ ngân hàngtrưởng phòng cải tiếnkỹ sư vật liệu xây dựngnhân viên phòng mẫunhân viên bán hàng tại siêu thịgiám sát thi công cơ điệntrưởng nhóm triển khai phần mềmnhân viên rạp chiếu phimchuyên viên quan hệ lao độngtrưởng nhóm kinh doanh bất động sảnchuyên viên kiểm soát nội bộtrợ lý tuyển dụngtrưởng phòng thiết kế thời tranghọa viên 2dkỹ sư cây xanh cảnh quangiám đốc kinh doanh dự ánphó phòng xuất nhập khẩuphiên dịch viên tiếng trung quốcnhân viên kỹ thuật điện công nghiệpgiáo viên quản nhiệmphi côngthợ trang điểmthuyền trưởngquản lý tiềm năngnhân viên quản lý hồ sơthợ vận hành lò hơinhân viên lái xe tải nhẹthợ sửa chữa xe máysinh viên làm thêmgia sư tiếng anhnhân viên tư vấn bảo hiểmgiám sát bếp ăn công nghiệptrưởng phòng nguồn vốnnhân viên seo youtubetrợ lý giám đốc sản xuấtthực tập sinh xuất nhập khẩucustomer success specialistnhân viên y tế công cộngquản lý dự án nội thấttrợ giảng tiếng anhlập trình viên androidnhân viên văn thưkỹ sư cầu nốinhân viên kinh doanh thời trangnhân viên kinh doanh thương mại điện tửnhân viên kinh doanh dịch vụ viễn thôngscrum master - agile coachtrưởng phòng vận hànhchuyên viên truyền thông thương hiệukiến trúc sư quy hoạchhộ sinhlập trình viên iosbác sĩ gây mêbác sĩ cấp cứulập trình viên abapnhân viên mediachuyên viên đầu tư và kinh doanh trái phiếuchuyên viên tuân thủtrợ lý nhãn hàngtrợ lý giám đốc marketingtrưởng phòng pháp chếf&b managertrợ lý giám đốckiến trúc sư nội thấtnhân viên truyền thôngthực tập sinh lập trìnhtrưởng phòng đào tạocông nhânnhân viên sản xuấtnhân viên kỹ thuậttrưởng nhóm marketinghọa viên kiến trúckỹ sư điệntrưởng phòng thiết kếthực tập sinh triển khai phần mềmnhân viên kinh doanhnhân viên penetration testingdược sĩnhân viên kỹ thuật viễn thôngthực tập sinh kinh doanhthợ sơnnhân viên thu hồi nợgiám đốc kinh doanhnhân viên bán hàngnhân viên kỹ thuật bảo trìbiên tập viênlập trình webnhân viên an ninhtrình dược viênnhân viên điều hành tourgiám đốc tài chínhgiám đốc truyền thôngphiên dịch tiếng đứctrưởng phòng nghiên cứu thị trườngnhân viên bảo hiểm y tếgiáo viên lịch sửgiáo viên đạo đứcgiáo viên đào tạo spanhân viên pqcphó phòng mua hàngquản lý truyền thônggiám đốc khách sạntrưởng bưu cụcquản lý kinh doanhquản lý chi nhánhnhân viên tư vấn visadevops engineerchuyên viên quản lý hợp đồngnhân viên social mediakỹ sư xây dựng dân dụngnhân viên kinh doanh bảo hiểmtrưởng nhóm kinh doanh ô tônhân viên y tế công trườngtài xế xe 16 chỗkế toán vật tưquản trị kênh youtubenhân viên kiểm kêgiám đốc quan hệ khách hàngnhân viên tư vấn tài chínhmarketing communications managertrưởng bộ phận lễ tânnhân viên điều dưỡngtrưởng phòng kế hoạch sản xuấtkỹ sư lập trình hệ thống nhúngquản lý học vụtrưởng phòng pháp lýnhân viên nhắc phínhân viên phân tích dữ liệu kinh doanhphụ xenhân viên thiết kế tạo dáng sản phẩmnhân viên prtrưởng phòng tư vấn đầu tư chứng khoánnhân viên phun xăm thẩm mỹkỹ sư công nghệ thực phẩmtrưởng nhóm quản lý chất lượngtrưởng phòng kinh doanh bất động sảnnhân viên môi giớiquản lý điều phối giao nhậnnhân viên tư vấn tài chính cá nhântrợ giảng dạy tin văn phònggiám đốc bảo mật thông tinbác sĩ tai mũi họngnhân viên làm đồ handmadethợ điện nướcnhân viên kinh doanh hạt nhựanhân viên tiếng hànnhân viên affiliate marketingkiến trúc sư phần mềmcông nhân maylái xe đầu kéonhân viên giặt làthợ phaygiáo viên dạy múagiám đốc ban quản lý dự ánnhân viên buồng phòngchuyên viên phát triển dự ántrưởng phòng kho vậnnhân viên an ninh sân baythợ lắp đặt điều hòagiáo viên stemnhân viên quản trị mạnggiám sát thi công xây dựngquản lý nhà trọnhân viên bán hàng mỹ phẩmgiáo viên thcsthực tập sinh telemarketinggiám đốc vận hànhchuyên viên quan hệ khách hàng cá nhânhuấn luyện viên bóng chàythuyền phónhân viên biên dịch tiếng ngagiáo viên tiếng đứcbác sĩ nội soi tiêu hóanhân viên đối soátnhân viên khu vui chơikỹ sư nhiệt lạnhquản lý phòng khámkỹ thuật viên bào chếtrưởng nhóm pgnhân viên reviewchuyên viên bàn giao căn hộnhân viên chống hàng giảkỹ thuật viên sắc kýtrưởng nhóm kinh doanh nội thấtnhân viên nhặt bóng tennistài xế lái xe dấu enhân viên đón trả học sinhbảo mẫugiám định viên hàng hảiphiên dịch viên tiếng hànnhân viên sale onlinethực tập sinh an toàn lao độngbác sĩ y học dự phòngquản lý trưng bày sản phẩmlập trình viên javascriptkế toán định mức nguyên phụ liệukế toán tài sảncông chứng viêngiáo viên thpttổ trưởng sản xuấtchuyên viên đào tạo bán hàngtrưởng ca sản xuấtthực tập sinh phân tích dữ liệuchuyên viên kinh doanh dự ánchuyên viên quan hệ khách hàng doanh nghiệpnhân viên quản trị rủi ro logisticstrưởng nhóm phát triển thị trườngnhân viên trưng bàytrưởng phòng an toàn lao độnggiám sát m&ekế toán mua hàngkỹ sư giải pháp công nghệnhân viên vận hành hệ thống lạnhnhân viên cấp dưỡngluật sưnhân viên tư vấn dịch vụcông nhân sản xuấtgiám đốc nhà máynhân viên it helpdesknhân viên thu hồi nợ trực tiếpnhân viên thu hồi nợ qua điện thoạitrưởng phòng itthợ sắtkỹ sư thiết kế pcbchuyên viên điều phối đào tạochuyên viên tư vấn môi trườngthực tập sinh biên dịchthực tập sinh seohọa viên 3dtrợ lý quản lýquản lý chuỗi cửa hàngnhân viên tư vấn tuyển sinhlập trình viên pythonthực tập sinh ainhân viên kinh doanh chứng khoánthợ sửa chữa tivichỉ huy trưởngnhân viên kinh doanh ô tôkey account specialistnhân viên mua hàng quốc tếhiệu trưởng trường mầm nonnhân viên xử lý nợnhân viên thẩm định điện thoạinhân viên khai báo hải quantrưởng phòng kinh doanh vé máy baynhân viên biên dịch tiếng anhnhân viên thu mua thực phẩmnhân viên iqckỹ sư môi trườnghiệu trưởngtrưởng nhóm kinh doanhphó phòng hành chính nhân sựaccount executivethủ khohọa sĩnhân viên chạy quảng cáonhân viên kế hoạchnhân viên biên dịchbiên tập viên thể thaophiên dịch tiếng nhậtnhân viên trông quán netđội trưởng điều độ cảnggiáo viên tiếng việtthực tập sinh mua hàngtrưởng phòng thêubiên tập viên truyền hìnhtrưởng phòng kiểm kêchuyên viên giám sát tín dụngchuyên viên đăng kiểmbác sĩ chấn thương chỉnh hìnhthợ nhựanhân viên kiểm nghiệm dược phẩmgiáo viên tin họcnhân viên mua hàng nội địađạo diễnbác sĩ siêu âmnhân viên khánh tiếtnhân viên kinh doanh quà tặngkỹ thuật mỏchuyên viên tư vấn bảo hiểm kênh ngân hàngnhân viên học thuậtthực tập sinh lập trình mobilenhân viên vận hành máy cnctrưởng phòng tuyển dụnggiảng viên công nghệ thực phẩmthực tập sinh thiết kế cơ khíkỹ sư xây dựng thủy lợithực tập sinh front-endnhân viên đo mắtnhân viên y tế học đườngca sĩkỹ sư địa chất công trìnhchuyên viên isokỹ sư qa/qc công trìnhgiám sát khonhân viên xử lý dữ liệutổng đài viênthực tập sinh quản lý dự án xây dựngnhân viên vệ sinh an toàn thực phẩmtrưởng bộ phận buồng phòngnhân viên quản lý chất lượng cuộc gọibác sỹ thú ytrưởng nhóm tuyển dụngnhân viên kinh doanh hóa chấtnhân viên thiết kế rậptrưởng phòng mua hàngnhân viên hồ sơ thầu xây dựnggiáo viên mầm nonbảo vệ bệnh việntrưởng nhóm content marketingkỹ sư an toàn thông tinquản lý dự án phần mềm pmquản lý dự án xây dựngkỹ sư xây dựng cầu đườngnhân viên digital marketingnhân viên nhân sựnhân viên giao hàngnhân viên tổ chức sự kiệntrợ lý tiếng trunggiám đốc phòng giao dịchnhân viên r&dnhân viên marketingnhân viên tư vấn tín dụngtrưởng phòng kinh doanhthợ sửa chữaphụ tánhân viên quản lý đất đaiquản lý dự án cơ điệngiám đốc nông trườngtrưởng phòng điều hành tourcộng tác viên đăng tinkế toán công nợkế toán tài chínhkế toán thuếnhân viên kinh doanh hàng gia dụngbác sĩ chuyên khoa da liễulái xe cứu thươnglái xe cứu hộthực tập lập trình viên phptài xế lái xe hạng cgiám định viên trang sứcnhân viên an ninh khách sạnnhân viên kinh doanh websitecông nhân xây dựngkế toán đối soátthợ bạcnhân viên thu cước viễn thôngnhân viên kinh doanh dịch vụ nha khoanhân viên kiểm nghiệm hóa lýthợ mìnkiến trúc sư thiết kế chiếu sángchuyên viên thanh toán quốc tếthực tập sinh back-endgiám đốc thi cônggiáo viên kỹ năng sốngtrợ lý marketingtrưởng nhóm seonhân viên in ấnkey account managernhân viên hành chính nhân sựnhân viên kinh doanh truyền thôngnhân viên tiếp thịkỹ sư shopdrawingtrợ lý luật sưtrưởng nhóm trade marketingcộng tác viên tuyển dụngthực tập sinh itnhân viên phiên dịch tiếng anhtrưởng ca phục vụnhân viên thiết kế thời tranggiáo viên vật lýgiáo viên thể dụcthực tập sinh pythonthực tập sinh kế toánthực tập sinh kinh doanh xuất nhập khẩuautomation testernhân viên kinh doanh du lịchkỹ thuật viên chăn nuôitổ trưởng vệ sinhdinh dưỡng viênnhân viên bán hàng thời trangthư ký sản xuấtcộng tác viên kinh doanhlập trình viên javatổ trưởng bảo trìnhân viên thủ tụcphục vụ nhà hàngnhân viên giao nhận hiện trườngkế toán trưởngnhân viên content marketingnhân viên kinh doanh b2blập trình viênnhân viên vận hànhgiám định viênthợ đứng máy cnctrưởng nhóm kinh doanh phần mềmthợ cắt tócphiên dịch tiếng phápgiáo viên tiểu họctrưởng phòng kinh doanh nội thấthuấn luyện viên bóng chuyềnnhân viên kỹ thuật điện lạnhgiáo viên tiếng anh onlinenhân viên lễ tân phòng gymbác sĩ chuyên khoa nộikế toán dự ánkế toán khách sạnnhân viên chia bàinhân viên kinh doanh thiết bị nha khoagiáo viên dạy toeicthợ đálái xe cuốcnhân viên pháp lýgiám đốc sản xuấtgiám định viên nông sảnnhân viên lễ tân văn phòngkỹ sư khoa học dữ liệunhân viên kinh doanh phụ tùng ô tônhân viên tư vấn tài chính doanh nghiệptrưởng phòng thủ tụcdevops internthủ kho công trìnhnhân viên phối màucán bộ kế hoạch tổng hợptrưởng nhóm kinh doanh logisticschuyên viên tái bảo hiểmnhân viên quản lý chất lượng may mặcgiáo viên chủ nhiệmchuyên viên phát triển sản phẩm tài chínhnhân viên kinh doanh phân bóntrưởng phòng xuất nhập khẩucố vấn dịch vụnhân viên kỹ thuật điện tửtrưởng phòng chăm sóc khách hàngnhân viên spa thú cưngnhân viên thống kêperformance marketing managerquản lý xưởng maykỹ sư thiết kế điều hòa không khínhân viên kinh doanh thực phẩmtrưởng phòng hành chínhthực tập sinh nghiên cứu blockchainnhân viên phát triển mặt bằngnhân viên phát triển kinh doanhkỹ sư qs xây dựngchuyên viên phân tích đầu tưkỹ sư địa chất khoáng sảnchuyên viên giám định bồi thường bảo hiểm ô tônhân viên chế bảntổ trưởng tổ hànnhân viên kinh doanh logisticsnhân viên marketing onlinethợ làm tócnhân viên đo đạc bản đồlập trình viên aitrưởng nhóm digital marketinglập trình viên unitytrợ lý dự ántrợ giảngchuyên viên điều phối kinh doanhnhân viên an toàn lao độngthực tập sinh phân tích nghiệp vụtrưởng phòng kinh doanh logisticstrợ lý kiểm toán
+
+
+Chọn hoặc nhập vị trí công việc mà bạn quan tâm, sau đó nhấn Enter. Thông tin này sẽ được dùng để gợi ý những việc làm phù hợp cho bạn. (Bạn có thể nhập nhiều vị trí khác nhau để nhận được các gợi ý phù hợp)
+
+
+
+
+
+
+
+
+
+Lưu thông tin
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+×
+❮
+
+❯
